@@ -1,2 +1,2 @@
-Dashboard link: 
-https://github.com/Dilli28/UNEARTHING-THE-ENVIRONMENTAL-IMPACT-OF-HUMAN-ACTIVITY-A-GLOBAL-CO2-EMISSION-ANALYSIS
+DASHBOARD LINK : https://1drv.ms/u/s!Aqf5OPuZ4--oggr0621xdiBpX-Hc?e=4mmI8C
+STORY LINK : https://1drv.ms/u/s!Aqf5OPuZ4--oggsWSGmTcDUcf7D7?e=Az2I9p
